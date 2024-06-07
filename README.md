@@ -10,4 +10,4 @@ meu nome é Bia
  
   - beatriz77b@gmail.com
   - @be4trizsxx
-  - https://search.app.goo.gl/J2UgE2b
+ ![](https://media1.tenor.com/m/rNGcuCXUhucAAAAC/cr7.gif)
